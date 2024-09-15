@@ -4348,6 +4348,11 @@ But I'm not gonna lie down until I get there.
 
 ---------
 
+> - Programador sin café es como un coche sin gasolina. Solo que más ruidoso y menos funcional.
+
+*Desconocido*
+---------
+
 > - Soy el amo de mi destino, soy el capitán de mi alma
 
 *Tio Gilito*
